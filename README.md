@@ -1,1 +1,1 @@
-Academic project, praticals sessions 
+Academic project, praticals sessions (in progress)
